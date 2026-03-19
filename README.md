@@ -1,4 +1,4 @@
-# Hi 👋, I'm Amaya
+# Hi 👋, I'm Budhathri
 
 ### 💻 A Passionate Full Stack Developer & Tech Enthusiast
 
