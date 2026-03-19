@@ -19,7 +19,7 @@
 
 ### 📫 How to reach me
 
-* Email: [your@email.com](mailto:your@email.com)
+* Email: [budhathribandara@gmail.com](mailto:budhathribandara@gmail.com)
 
 ---
 
